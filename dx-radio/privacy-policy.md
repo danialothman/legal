@@ -103,4 +103,4 @@ This policy is effective as of 2026-07-27
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at danialbinothman@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at apps@hellodanial.com.
